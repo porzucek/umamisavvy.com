@@ -7,7 +7,7 @@ author:     "M&A"
 header-img: ""
 ---
 
-As we were knocked after a sleepless night in Tokyo, we slept through our fist trip by Shinkansen from Tokyo to Kyoto.
+As we were knackered after a sleepless night in Tokyo, we slept through our fist trip by Shinkansen from Tokyo to Kyoto.
 
 ![Shinkansen](https://lh3.googleusercontent.com/-rhnjMgbMG5g/ViVv0DbYYsI/AAAAAAAAU1o/vKavOzxcqkY/s800-Ic42/20151019_061910.jpg)
 
