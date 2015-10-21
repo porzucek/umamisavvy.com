@@ -15,4 +15,6 @@ During the flight we met Thomas, German guy married to a Japanese lady. He helpe
 
 The next thing was to buy *sucia* card, which is a contactless type of card that can be used to pay in vending machines, supermarkets, public transport and many other places across Japan. To check it out, we made our first vending machine purchase in Japan, a bottle of green tea that tasted almost like a real one.
 
+![](https://lh3.googleusercontent.com/-sMKT0MTeTLE/ViehP__1kNI/AAAAAAAAVW4/Pq3Kq64ZGzI/s800-Ic42/20151018_200817.jpg)
+
 Btw, Agata was really happy that her "3" network roaming is finally working abroad (probably first time ever).
