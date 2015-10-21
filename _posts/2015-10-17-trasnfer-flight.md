@@ -7,13 +7,13 @@ author:     "M&A"
 header-img: ""
 ---
 
-It's almost midnight. We just landed in Istanbul and now waiting for our flight to Japan.
+It's almost midnight. We just landed in Istanbul and now waiting for our flight to Tokyo.
 
-Transfer flights are extremely easy. There are directions everywhere and there's now way to get lost.
+Transfer flights are very easy. There are sufficient directions at the airport so there's no way to get lost.
 
-Istanbul's airport seems to be of moderate size, but even though it's almost midnight the congestion of people is comparable to that on the London tube in the rush hours.
+Airport itself seems to be of moderate size. Even though it's almost midnight the congestion of people is comparable to that on the London tube in the rush hours.
 
-So far we are satisfied with Turkish airlines. The dinner was tasty, or at least the meat option, because Agata's vegetarian dish didn't hit the spot.
+So far we are satisfied with Turkish airlines. The dinner was tasty, or at least the meat option - Agata's vegetarian dish didn't hit the spot.
 
 The time is passing reading "Sleepslessness(insomia) in Tokyo", thanks Beata!
 
