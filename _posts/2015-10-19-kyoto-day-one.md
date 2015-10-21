@@ -11,10 +11,10 @@ As we were knocked after a sleepless night in Tokyo, we slept through our fist t
 
 ![Shinkansen](https://lh3.googleusercontent.com/-rhnjMgbMG5g/ViVv0DbYYsI/AAAAAAAAU1o/vKavOzxcqkY/s800-Ic42/20151019_061910.jpg)
 
-We arrived Kyoto at 9:20 and went to our first accommodation - Highland Guesthouse Kimabara. We were very pleased with its standard - spacious room(for a Japanese standards) with separate kitchen, bathroom and toilet. (We are going to expand on Japanese hygiene and toilets style later on).
+We arrived Kyoto at 9:20 and went to our first accommodation - Highland Guesthouse Kimabara. We were very pleased with its standard - spacious room with separate kitchen, bathroom and toilet. (We are going to expand on Japanese hygiene and toilets style later on).
 Our check in was not until 4pm, so we had all day in Kyoto before our first shower in Japan :-)
-As Kyoto is not a very big city we've decided to rent bikes to start exploring. That was an absolutely great idea.
-The city is perfect for cycling - friendly and safe. We went on the ride alongside the canal, enjoying the beautiful, warm autumn day.
+As Kyoto is not a very big city we've decided to rent bikes and start exploring. That was an absolutely amazing idea!
+The city is perfect for cycling - it's safe and has a necasary infrastructure. We went on the ride alongside Kamo River, enjoying the beautiful, warm autumn day.
 
 ![canal1](https://lh3.googleusercontent.com/-6alkfkdrwU0/ViVv0MCC1eI/AAAAAAAAU1o/41aGTwzuLCU/s800-Ic42/20151019_111859.jpg)
 
@@ -22,10 +22,9 @@ The city is perfect for cycling - friendly and safe. We went on the ride alongsi
 
 Places we've seen:
 
-- Chionji Temple
-- Yoshida-jinja Shrine
+- Chionji Temple - our first glimpse on a buddhist temple
 
-![](https://lh3.googleusercontent.com/-L5TucMZIY0g/ViVv0MapiVI/AAAAAAAAU1o/do7Wvr0S35g/s800-Ic42/20151019_124329.jpg)
+![](https://lh3.googleusercontent.com/-iUP3K9JgHVo/ViePMVDh9gI/AAAAAAAAVVA/6opK_ZAC0OY/s800-Ic42/DSC09181.JPG)
 
 - Heian Jingu Srine and its beautiful garden
 
@@ -39,4 +38,4 @@ For lunch we had our first Ramen in Japan and it was as good as we were expectin
 
 ![ramen](https://lh3.googleusercontent.com/-IQPnQTp4sBk/ViVv0Bo7AzI/AAAAAAAAVFM/Laz_YZMl0bY/s800-Ic42/20151019_144405.jpg)
 
-The best thing is that you don't really need to talk to anyone! You pay in a vending machine before the entrance, then you specify your order in writing and the food is served in a way that you can't see a face of a cook/waiter.
+The best thing is that you don't really need to talk to anyone! You pay in a vending machine before the entrance, then you specify your order in writing and the food is served in a way that you can't even see a face of a cook/waiter.
