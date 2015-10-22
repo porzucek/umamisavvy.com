@@ -5,6 +5,9 @@ Lot's of public service and city watch / night watch on the streets every corner
 
 Electricty lines everywhere
 
+- Plastic food
+
+
 Toilets and hygine - need to write down the instructions on how to use it.
 
 Why do they wear surgical masks?
@@ -21,4 +24,4 @@ One thing worth noting are japanese toilets. Self warming desks, very complex co
 
 - shinto religion
 
-- useless jobs 
+- useless jobs
