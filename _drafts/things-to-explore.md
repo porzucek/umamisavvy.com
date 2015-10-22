@@ -6,7 +6,7 @@ Lot's of public service and city watch / night watch on the streets every corner
 Electricty lines everywhere
 
 - Plastic food
-
+- vending machines
 
 Toilets and hygine - need to write down the instructions on how to use it.
 

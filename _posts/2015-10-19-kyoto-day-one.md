@@ -22,11 +22,11 @@ The city is perfect for cycling - it's safe and has a necasary infrastructure. W
 
 Places we've seen:
 
-- Chionji Temple - our first glimpse on a buddhist temple
+**Chionji** temple - our first glimpse on a buddhist temple
 
 ![](https://lh3.googleusercontent.com/-iUP3K9JgHVo/ViePMVDh9gI/AAAAAAAAVVA/6opK_ZAC0OY/s800-Ic42/DSC09181.JPG)
 
-- Heian Jingu Srine and its beautiful garden
+**Heian Jingu** shrine and its beautiful garden
 
 ![garden](https://lh3.googleusercontent.com/-nXlkJSe9Ft8/ViVv0POF0KI/AAAAAAAAU1o/9pvt8fEgtPs/s800-Ic42/20151019_134226.jpg)
 
@@ -38,4 +38,4 @@ For lunch we had our first Ramen in Japan and it was as good as we were expectin
 
 ![ramen](https://lh3.googleusercontent.com/-IQPnQTp4sBk/ViVv0Bo7AzI/AAAAAAAAVFM/Laz_YZMl0bY/s800-Ic42/20151019_144405.jpg)
 
-The best thing is that you don't really need to talk to anyone! You pay in a vending machine before the entrance, then you specify your order in writing and the food is served in a way that you can't even see a face of a cook/waiter.
+From the tourist perspective the best thing is that you don't really need to talk to anyone! You pay in a vending machine before the entrance, then you specify your order in writing and the food is served in a way that you can't even see a face of a cook/waiter.
