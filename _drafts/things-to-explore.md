@@ -25,3 +25,5 @@ One thing worth noting are japanese toilets. Self warming desks, very complex co
 - shinto religion
 
 - useless jobs
+
+- umami - 
