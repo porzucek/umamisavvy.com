@@ -9,7 +9,7 @@ header-img: ""
 
 ### Toilets
 
-It's one of the things that I knew about before coming to Japan, but It still shocked me :-)
+It's one of the things that I had known about before coming to Japan, but It still shocked me :-)
 
 Toilets! They are advance pieces of tech and have things that we should also have in the West, first and foremost:
 

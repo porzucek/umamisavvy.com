@@ -26,4 +26,6 @@ One thing worth noting are japanese toilets. Self warming desks, very complex co
 
 - useless jobs
 
-- umami - 
+- umami -
+
+- patchinko -
