@@ -28,4 +28,4 @@ One thing worth noting are japanese toilets. Self warming desks, very complex co
 
 - umami -
 
-- patchinko -
+- patchinko - it's a very popular mechanical game. It's a relaxtional 
