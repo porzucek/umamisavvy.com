@@ -1,6 +1,6 @@
 # Site settings
 title: umami savvy
-header-img: img/header.png
+header-img: 
 email:
 description: "Our first time in Japan."
 baseurl: ""
