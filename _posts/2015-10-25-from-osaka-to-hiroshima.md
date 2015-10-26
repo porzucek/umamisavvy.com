@@ -11,7 +11,7 @@ After our second shinkansen trip we arrived to **Hiroshima**. The city makes a v
  it was just 60 years ago, when it was destroyed by the first atomic bomb in the history.
  Now Hiroshima looks modern, organized and very welcoming. All important sights are easy to access by foot.
 
-Our accommodation is very central so we went for a stroll to see the **Peace Memorial Park** and **A-bomb Dome**. It was an amazing experience to
+Our accommodation is very central so we went for a stroll to see the **Peace Memorial Park** and **[A-bomb Dome](https://en.wikipedia.org/wiki/Hiroshima_Peace_Memorial)**. It was an amazing experience to
 be in the place we have only seen on a TV or read in the history books. It was touching and emotional for both of us.
 
 ![](https://lh3.googleusercontent.com/-FAiOU7srYhE/Viy_TShqdyI/AAAAAAAAWNY/eVifPs86ijo/s800-Ic42/DSC09553.JPG)
