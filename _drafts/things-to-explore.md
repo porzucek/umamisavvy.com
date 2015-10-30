@@ -34,5 +34,6 @@ can be translated as pleasant savory taste
 - automated car parkings
 
 - roof over the sidewalks.
+
 gohan - rice , meal.
 okazu - things that go with rice.
