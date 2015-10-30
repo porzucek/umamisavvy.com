@@ -11,8 +11,6 @@ Electricty lines everywhere
 Toilets and hygine - need to write down the instructions on how to use it.
 
 Why do they wear surgical masks?
-- mostly they wear them when they are sick. And it's not because they don't want to spread virus.
-The reason is less altruistic. It's just proven  Masks helps to
 
 Why a few of Japanese girls have their legs facing inwards?
 
@@ -26,6 +24,15 @@ One thing worth noting are japanese toilets. Self warming desks, very complex co
 
 - useless jobs
 
-- umami -
+- umami - it's a 5th taste. It's hard to distinguis and in the west people tend to call it savoury. It corresponds to the flavour of glutamates.
 
-- patchinko - it's a very popular mechanical game. It's a relaxtional 
+can be translated as pleasant savory taste
+- patchinko - it's a very popular mechanical game. It's a relaxtional
+
+- Bonito flakes - why I don't like them?
+
+- automated car parkings
+
+- roof over the sidewalks.
+gohan - rice , meal.
+okazu - things that go with rice.
