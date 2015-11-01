@@ -37,3 +37,6 @@ can be translated as pleasant savory taste
 
 gohan - rice , meal.
 okazu - things that go with rice.
+
+dipped in ponzu or goma (sesame seed) sauce before eating
+Mitarashi dango, rice dough dumplings with sweet-salty sauce (mitarashi sauce)
