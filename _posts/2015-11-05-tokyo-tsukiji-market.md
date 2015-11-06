@@ -2,13 +2,13 @@
 layout:     post
 title:      "Tokyo - Tsukiji market"
 subtitle:   "Tuna auction"
-date:       2015-11-04 22:50:00
+date:       2015-11-05 21:50:00
 author:     "M&A"
 header-img: ""
 ---
 
 [Tsukiji market](https://en.wikipedia.org/wiki/Tsukiji_fish_market) is the biggest fish market in the world.
-It handles about 400 different types of seafood, and every day it's buzzing with people.
+It handles about 400 different types of seafood, and every day it's bustling with people.
 The market is very famous for its tuna auctions, that are available for tourists to watch.
 The catch is, the auction starts at 05:20am and only 120 people are allowed to see it. It's a very unique experience and there's a lot of interest so people tend to queue hours before.
 I got there at 03:50am and was pretty lucky because after I came, only 30 people were let in.
