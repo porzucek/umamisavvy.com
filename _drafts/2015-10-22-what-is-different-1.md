@@ -21,6 +21,7 @@ Some of them have even more features, like:
 - pressure sensor to only activate when someone is sitting.
 - motion sensor to open the lid when someone walks in.
 - spray.
+- music when you're doing your business.
 
 ![](https://lh3.googleusercontent.com/-Y3PCvGVG-nM/Vijdl36Ju8I/AAAAAAAAVfI/AcQua-XI4bY/s800-Ic42/20151021_211623.jpg)
 
