@@ -9,7 +9,7 @@ header-img: ""
 
 ### High-tech toilets
 
-It's one of the things I had known about before coming to Japan, but it still shocked me :-)
+It's one of the things I had known about before coming to Japan, but it shocked me nevertheless :-)
 
 Toilets! Especially toilet desks. They are packed with features that I'd love to see everywhere. First and foremost:
 
@@ -20,7 +20,6 @@ Some of them have even more features, like:
 
 - pressure sensor to only activate when someone is sitting.
 - motion sensor to open the lid when someone walks in.
-- spray.
 - music when you're doing your business.
 
 ![](https://lh3.googleusercontent.com/-Y3PCvGVG-nM/Vijdl36Ju8I/AAAAAAAAVfI/AcQua-XI4bY/s800-Ic42/20151021_211623.jpg)
