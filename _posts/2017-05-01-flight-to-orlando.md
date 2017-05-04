@@ -1,0 +1,38 @@
+---
+layout:     post
+title:      "Getting to Florida"
+subtitle:   "Orlando"
+date:       2017-05-01 10:00:00
+author:     "M&A"
+header-img: ""
+---
+
+On Monday we woke up quite early as we had our flight to *Orlando*. Transfer to the airport went smoothly and (as always) we arrived 3h before the flight :D
+
+![](https://lh3.googleusercontent.com/LKB_wwytuuiQ2yaex3Hic3T7C57zDSrMAlAIAbBCTbCqTlNO2ldb5e3DNnkNlG8Z-WnCqrqu9-MgHom3gQ5ixgtgbcTvSqe_-HCQeAZNw78-x1voR0f64Es4bAYRHKzxPqMzUPsjyqoXeP_L_Spb3ng2kR4ilkNqXyj7F6ljimRFGrdwnjBxbJIuUYXeusOJX9AD7zyMeWoem-TJSTd4EgVqR_-83YE2bfKyaFiV6Fxng7JVMduqg7v1aNcHxbGbSTl5rdehahs3tqLHyzokL5lu9iwIJ_kOKuIh90yTL01Z551nbKTW9lXT4hi66E9-eU2kkKN8pBMbbcCXonrB6m2X0LsLYh05iPpSmxQ7BlEVppnsFcSeJc3gBjve4whWlWan0K1829BA6NOCW7vUN9NZL8zPZVG_AAvE3s1xtdi0BoyEJZ6DMftlWSf2cXCmIMCWgoWFPJ7AZnlnJkNBW47yyFs--RSLRUlijpSxvRiMdEEw1mz7IDeAaPxVZyqtWNk0XWuHsoM1pkLSwdJ6p9Kmc9ABtWMfUC8HYyup_G18wnMXnaNoSVN6rlXaxXKjaVmCuTa9KioL-7EGPFfa4ehajR_81M2amA9HQsqLlecG751snBOe9ValHMo9MQ-JxG01n7G2JddsZNrMXr2D8rUxzM6qUTjAXHmXJgPGS50=w1309-h736-no)
+
+The flight from New York to Orlando takes about 3h. On the plane we met a very friendly ex-new-yorker who was helping to clean the remains after 9/11. He shared a fee handy tips about Florida and interesting facts about USA in general.
+When we left the plane we were struck by the tropical heat (30+ Celsius degrees). 50% of us is very happy with the weather, another 50% is afraid to melt ;-)
+
+![](https://lh3.googleusercontent.com/aJahZaoRLZ6zgEjaDSoIL4mH_vhsUBtK4IZtTTYF3gcPQ5g5WpYM8lRV6eDZUiQcQjIAQ7V1nMECrgqH6vzKIabkN-8QqQHhxHgMNrdO4OfUOrHyyLqwjebL3ZFxTbHIYFwH1jBBljapn0OJvrd2Zkb47j6Pu-OIYm2_17V9FbGfDcQ1xJnVrcrKk7YqYHjDGj9x0P6x4Vpmnia2R2XBBrK-Yq1HH8iKXU5s7_k3VdT7kyLiuP1L-zjK2TgEwY8dhOBBYjnd4wf8hCITIp2bG5skI_UffvdG3wH18dWMVVJt2ij9BZKL4kz6GWgG3b0MlL0NUe4e3pl5k_ssLECfijBpwCFRaYfr2YDBTbSOIH_LfY60e620DeUcNCu4QREaO2c19-PE2SD3BR3z2jGJPp9hHFc_Cy84Hy4WR4ledlFkoyCde3uo7-J_y7oV0if0ofpNN52Kkkr8d-ZW4CcWPSRmhNDfy8TVfKiIbYdeOuF3q6iZAcmeeWFpwQgzB2unIJDZoLWsPCnsU0GpmBZ-CfplBM7w8K_S0j0U6ZALdel8u58SXZCD9FQMiesBd6FwQX5kBWyIC_fkdOBNWb4OlF_e8-AAuHFjq0fsTxq9ejCBhpIYEV0hmc6LLj7tYyMbJiPkv-420YqSte0q8U2pLYTICeKZ39ZEphcWf8MAsRQ=w552-h736-no)
+
+
+Picking up the car wasn't difficult, as we had arranged everything upfront, but there was one thing we weren't aware of.
+There're tolls on Florida's roads and we were manipulated by the guy at car rental that we need to pay for it at the desk, but actually it's cheaper to buy it in the supermarket and top it up.
+
+Our Car:
+
+![](https://lh3.googleusercontent.com/lfb2TSCga4A9D5g7HKHm41oIs0jlyuYhJjUHEMH3ivYcn9J6jqjAMmAw8G8zA70XRlUbJmCT0qWpBtZsrnAcMerRk41sLgz5K3TO3Vddmkqs7TemMjqDb67dkWRbwZTVI3hBx5xGXA260V5dWrLEGt1hfV-SCSKSFpmB_kUFT-WGofzuUSGp2vYUM1WuFQkq4SN5521NO49GQiCJ-2yb4aqa812nfiIr31iXEK02twaUYVdt0NFpcDVNXfcutbrk6u-v33gn_kmfUFVuqZ2K6KVbGqwVgkKI5FWFe0G40M_z1wU2crOrEjBMASI1uf_5suU1colFIucHLIR1K2FNxFSrnTsZUTUDr-5nSdqrO_wuJ6q6g90C8XS_nqW5LTBkxaOdTNHlJn9bEjZ-VVzqcX9Tcy229c9bMF4HjPPc3uHE5LVK28rafyjxJarJxQkvsDdJpSBlGZXEsJPFKG848589bNrIajrK89uH7FrOFPVCI_960Arg418p0ps5sv_AWYUfRfFgFheYqO7JJxhkLPYjF66wdElSfxGVj1kVG6cfLeMTux-lRy-GGksUYJnLGpw-__fxwixzkuHZIxIu-VUNJaeGgXpcPoRlrSwPPiUyx3l18rPhwEe-Af1p0_Wy4yyS-jdiPkIWhgwlKmYYC20wA9dFhuomYboVWYf98qc=w1309-h736-no)
+
+
+Ok, just kidding, it's this one:
+
+![](https://lh3.googleusercontent.com/6NFZCpk5K4t6H8IuGyirGBTKHwehBsmFv2VMuTFikKKoJOTia7BIUTmq8FlxQEy_907oO0iA7-q6lGX85AWdxSm0CRstlAYWVGHxtTP20S4uwe4pbju97IrRQZWXs2Nj4twA6gEgPQrb95_I6ifIsdWiE-rsQ7UeI7lM_E0ykuA4SjUnMvTyRRSZuWgKtUId_9yI0KuUenRF-42VE-Jz6qpFwxABU8Lw4sIanNWHIpAU5z3yLm3iodvQ9_PZecnsvNUPNP9t0nMt_YwaQExjWzEX4HwINcHS0G9e3d7dDL_pDKXJcQ1km0ROlfukRq6IExKvAPGms6EE56cDhbFgvwk_Fb303L-GVL1ENce2o-AE9VeN05pspmr-AeP0dCKXkLKA_pwNfWHYyPAJ5pwIf9FiKmZdtHqwG47P4Nz1ACC6PIbG8oYNF5VUVuvho2ctaTVMMfTiZIX8VtatBa7mKqcDPlXxlhWH1jZ8H_03_kmkcDLqLT_JICIPmdUfCpWj8p2Heri-nza85NYZSzEbySZkGNGNvLy7nM3lXSV-PmXKtYZQnEk4-OX2C4U3LIy2-kMdT5nqZs3CqFFJ1W2IdMPCdPRB-Z34dU6VcJZzhXSMY5VjpZFqtoAg3giY_wwXzSnIy52KoWncfmAH76HvXZpy5rhOQTJQIQIMErHwrnI=w1309-h736-no)
+
+
+Driving in Florida is not difficult, roads are in much better shape then in the NYC and are well marked. Our Airbnb accommodation is also nice. It is a house transferred into a hostel so we've met other travelers - girls from Australia and a couple from Germany. The only annoying thing is a very loud A/C in the house (but at least it is nice and cool inside).
+We had very laid back afternoon - mostly planning the rest of our trip. For dinner we went down to a nearby Mall and I think we had one of the best burgers so far in USA (it doesn't look great, but was sooo goood!)
+
+![burger](https://lh3.googleusercontent.com/OrSL9Smcae8RxvaUz521Ggacn-3DKZxYt-htEeGsVP872F_Hq4BY9RrYg3svQ2Pe1ONxhnnGRbH079xSoqZxA1BtX9J-JxHxiHNw8dELWDv3q2qdGU6Y0n6KB4EI4qlNtwE30jEHZ6J5mtVfN4yzJaak22cpnzY_hvbohsZKti22CN-2njRAfSvbrwFIJJpeaVPEc54ppBn8KtyIaLJIv6soVFFdvcLovMQRrw0UK_qQ7cIuGjiL_J70phOtZaUZuHj5o8RytqnfnZuPQLeHNFB2TJyxXZOKx9PlMr8d7Mym1VxGn8jFqcKrP3NCut7Sd7047iWH-XNfybA7rxEEJtOxx6UdptwJrFHAiHOESewPCEOzko_kJ6K2qTT0ni6YgVm0Yy_zSrm3t4WOGFvbXOOVPHxQPPtjfFpNNhnInTH31mXb-DBPUmsb6935dYiMTsg94x2GpSkg2tQcTjdteB9GbI5pO5JZdFDCTEmI6awaNjUON15Rsgi21xG-ZzdxQpBpb7YC7r9cXwSFwqQHSzB_yxK8fpG457UlWifkv3FvQGzFxzX8aUMBGZZdY7nWE18TLIphxQuOIXg4H7QEisBuEmmGEng_XYYOLnPJm75OlwQj79Z8IQTjWiXOc1bT9cjKdBH_7GE3zv46RinAO-xi1yoZCVQURsfQFtdJOUc=w1121-h736-no)
+
+![](https://lh3.googleusercontent.com/ZGVrlEKO7qjhENCKWlxKjf3nzTjoWdJ56XSdTc6f2dhU05jlwmXxIvKfHOoDIoXBntnINWbig6jN0pjdtCa2yDM0ZMZe5JLE_GCKuf4eufVKisePpsLV5GObvzq9HcZMU5813aveCAt1oN_pkLdEgZpDPVzQ1jw458SoqSaRCnxsXUsm1FVQgo2P3ag25mdT8TgWJYmTrppVM681C2VU67OBRvqLqaUaTyYUlIfgs0xgjyg17Xa1XEwfymrxioQyDDczc-SPgIMCiUPnad_ayze5X8tWfLCHNPWe6y1RTyL9I_FHzT2TIvsZP6APapfZcZBShpXkDpXkH2-ig2Q8MRZixK35Sdr-NetRBMONfYUa66b0jDH0nTF56MiLtTuyxFrAlhwOEozGIIT4XaySkCI7unQnqB6ET39o8FgWfnqItlCJ8-TiAjM_5Mmsa76VtER6MUv6b6ZDL5iMwY5gFTGO5BQA3VI6LhreEwTqF80l6Zcy7Bu_pDHsCv8arkQsf7y9tCj5OXEZN010lfNHjHP25u__gI-GGwSHJeg18LV5nzmn58_7Gq8-zL-Ht-lhcJ1FvBFUX_r6NzP4ZxG1HmA4aiqOafTyDyiPEdgQaI0YjaeAE109qBYYsHHKbXcJ78kubjewmvY9oo2Mzd5XY_H1-XmsBM0zvnPQsaFHuVM=w1309-h736-no)
