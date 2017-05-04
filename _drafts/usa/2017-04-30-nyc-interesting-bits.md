@@ -7,6 +7,9 @@ author:     "M&A"
 header-img: ""
 ---
 
+(saint Augestine - the oldest city in USA)
+Cape Canevral - every were
+
 Languages in NYC - more than anywhere else.
 
 Water tanks on the buildings
@@ -36,3 +39,6 @@ It's illegal to carry a gun in NYC
 Guns - 15 days to get the gun after the purchase (not in nyc)
 
 But you can get rifles straight away :-)
+
+Minimum wage in NYC is 15$
+Electritian gets 95$ / h
