@@ -7,7 +7,7 @@ author:     "M&A"
 header-img: ""
 ---
 
-In the original plan for Tuesday we were planning to go to the Universal Studios Island of Adventures. But as the weather forecast predicted a rainy day we've decided to go to *Kennedy Space Centre* which is also the NASA facility.
+In the original plan for Tuesday we planned to go to the Universal Studios Island of Adventures. But as the weather forecast predicted a rainy day we've decided to go to *Kennedy Space Centre* which is also the NASA facility.
 
 ![](https://lh3.googleusercontent.com/Nn249OnSUBdz02EPurwqhjyNKDP-_hXU_1fqxN-hc7OY5zPzIGPjGl_rhbkw_H3swKN3qgDLxP9ZMZJUvhX_kwQ31yHfAc-_GaUm0lmmq_c3bHRLVYf2B9iLj-kgfAw7z0mZEi-Lwy2dcJJ7y_0gxxrRM6BzbUcFhYU6AYywRDFw8vzp8qfGdnWM8UYMHoMYfDEh8a_mdEMn6vjd8MfTVQ2Dqs0QSlKdGszTNJNE-QG4o2xF_YYYPZoZwaMiqZEdvZUKoGPwsS9OEjsEkZS91DbOT92AK3aRMkc-lPQWvoMwsv67aoywzzNPfH9m0pRiTMij-CeXhHT_1W5wUQ400p7RpFsAXizQIRRw41JWII7Qmyt70ZRqvE7UObliq7pTUUh6wqk1eKy3bliGPeIo0c1p86BIjzwa1aw4Jp47Yc3GrnGaP5ShBcqKWLKMO-8UqQsgoIdTenMP1IgM0gEE8DT8jG6VpL69OTPGxkDxmA3ORUjIzx7DLIZSAYEc2PJQ6pir2uO69J-pVex72ttv4Im6DUQsb_xWFKTjYIkSTo_3VC-OWvLiZVWh3b1lajgaUl-mDMwvyxYQ17a-HuOGl47GfRSVJgeRogwn19e8fFVUHHd7Cw=w1309-h736-no)
 
@@ -17,7 +17,7 @@ First off we went to see the "Heroes and legends" building, and from the start u
 
 ![](https://lh3.googleusercontent.com/uNBxX8ZPE0RgL7Z99QBXb9zcGXCyG2igUBlrUW8ePpgJc1slBQWxKrLqdZVVZlGAKUl_TnVJqsqA8l-5L2vlBIxrI3vct4kYhY6m5cTeVDiZkseyislp5gtrRy4gRrvh1VF1zmQHiXJJuACrfWYa27mIhHeLwepCNwV2k-bg0uGhPo16CwXC58ZiMCcPedu_gmsd7bT5sYc2bbeCi6dcFUVzMBHeKPl-KeWrcXI3rAfDnXQRYUf3y9nKUXA986aWK9rxwI8M4-Ax9aucP5vBOEOziKrKn6tHcjajbfLZ6f-ShBi31RlKI1K9oN0QzBalgTGXoWX4gI26mFkS0o7Sw7_yWF4HNt6OfocIvDFP8eh8Ljtnuj9HuIl7gWQvqBnjsHsQO4KElBg9p552TWf7KjklaANxA1li2xSDFRlEWOdjgnotwRyumsel8wbjIqCNf-JnXQlbP0aQcwq_nAOEu_ZV3kc2tVZjFbgicTQ5ZZIFnN6kpKw89A3xMrx440yexaCnh3P_vEQ897GOFiU2HPhq_LomGzzHCYnWcV5zdKYDh9iSQ8TpFlH8Nt0XS_rWTM4VFN-VtaPy72XPC8E-MtniKXVYvy6DD6XAV-WgCnQCrB-wZqXzFw=w1309-h736-no)
 
-Next up we got to the bus tour around the whole complex that goes through the most important places: Vehicle assembly building (the tallest one-storey building in the world), two existing launch pads, rocket crawler, alligators (plenty of the them in Florida). We also drive by the SpaceX buildings.
+Next up we got to the bus tour around the whole complex that goes through the most important places: Vehicle assembly building (the tallest one-storey building in the world), two existing launch pads, rocket crawler and the SpaceX buildings.  We could also see some nature and wild live: alligators, turtles, bold eagle.
 
 ![](https://lh3.googleusercontent.com/irE8d3YBxXcOlb_5SfrRxJMm0e9XDoqiZEXlslZlVnEy5nC1sAgE3aVHyUaW2TtQV1D3i77uEgs4AfLilY-UfDOuADSMvgtJfJQjpggc2qKiZtFmeRX0v4mHJ6q_jMskssbiL5HJlfHC9Lhtpeny5TsdRp1j19HefYw8dvtVvRsbNf0cLtVsSKMhHLi7HGFkELFxL2qCjkGzsXTsolrHQdG9HuUWdk18NucD4k0fKcQJA6Ge9tmaLsdkcIb6D4u2KCLBUj6O0zdjVYXNglJcGiYheuMnkiTDLbswcndetYq2dPnwGFC1eMZWDv-IcLI0z4UhInrzciW75dbR0VBAcUo69vOjtBoX7DNYKlm8fcxSKIyQN805yu0Zat8oubf6fP9gdfgLWN6p67uVNV5aWz5C3I5Yf3iDtkbYeJzUypBdBnGHQj93wGv4ZmwSyLFu15q3qtkcSXudurPDEVompSy7kQQVd-klLgMu9IvJ-Y9N4Jn6aP35n5cSPOwCrE4SSfvV4430P9qUC1LO1ZOU1Fwd72eMsb5La6azB_rmG5-N8hkSh6MJgtyRHrfRVZKU1kBdnaqRhO7gCcfz69pJk4wIYhOvdE7eiSv7yOfH7cp6Jn-ybQ=w1309-h736-no)
 
@@ -40,7 +40,7 @@ There were plenty of information about the shuttle missions, but the top attract
 ![](https://lh3.googleusercontent.com/mqZ3p1BRrncoKS2es0g8AGT1gAyp-_8i7dEyRjW6BBSWsLfinXSurSxooZFVsfiXjvvg6T_j_Jg59-mAPn2qPAWfRDPt_3mVi5CHRoI5IfIyIiOPec3RCNaTXtIhazyTV2h5_74vnHX5aHozrSJ6YK37vf09W_TzhfdeuorgLgqEd6f_4LiprI8En6xxqBeC8uBXMsbwIQcsMOAHF2UQfmr1fSJdaHM-MJ04rUJLGzJVFuEmDGt9qGWfiaB6X9Fol3gnBGkliF5fBRostRlSkLcxOdUxhgU-binqFa9QadcgwiL5yog4fi9yE8Ra9APYRG4GKWdVvTHyZeVN35VYVVgIiWjKdponiK-skcYQfk9sK9FdzeTSpvgOs5V6PGHswVDlInZL4Emq6NbIpjbTh8Nfmi4jVMjXwkxS0E_K9rhVAg1uctTO41NShhQ1WwqzMQ0RJOby4Z7CwgkQoRe80An9ITXk7nd5JPElXDC7P06Z0iSRvKEZOJUrEqi8Z1Y0FxKfr7tS05qPt9AthlfgoR1bPRfFDEk1Rlfgw4PD38Cdf_EVpoJmJ8-kbScu3fNbgqTe25gA5Uo5Cfyn48DVxnmm-oujE8QuuaSKiCzSa3MID-vVg0gnzw=w1309-h736-no)
 
 
-The last stop on our trip were 2 IMax films:
+The last stop on our trip were two IMax films:
 
 - *A Beautiful Planet* - showing earth from the ISS (international space station) - and sharing many amazing views from the station. One I think is the best is the view of [lightnings](https://www.youtube.com/watch?v=eY3OD0OhLLg).
 
@@ -53,3 +53,11 @@ It appeared to be one of the best museum experience we had in our lives. America
 ![](https://lh3.googleusercontent.com/N6fRXEH7KYQV3uTYvOsnMbtKcNiGgU6zMT_W7z7V0Gc6oR0DQuQVYSfFhenjHNE5OqsygUOnd84xfPx_Na7ru19LciE-5RTl6FXsCeX8RClAYZVMnenBVDmrpiXp_9G_Ozj6aRS_Q2mZPFvhpRW_yY_goQBnvbcNZjVdzBW_nY958Zq_he2CvKjTYHnl3UVm5T0JcvmlcW3SSUg3KaZa9O24J7TyoXvjRi0ETnQ5NI7u345dmo-vt1bkZT0fz2rX8XvFaxNykJ98dCoDy7tAkpD1gklx6jts4xaKUTJti7l6JxjoCxV9qWY78aJXzkdkr0oyUvskc2kgr9zEdkZ4hMqxhUh9l8HUQ4Ee6kQiwLCuwGz5Pw3PUiFd5QZ8ge7kTGtP61ndq5UlQv8MQOCVG_i4lvo_A_VXLmQoblzkvONjkvAleyBsTZNGjgK0fNLzdXildCcUxkqs6__kd04mxm8H5wx5vV0f9iO5pKUgW0Bt9Qk4hTbZD8sT4SdyWrwEjybHPiiNJhwEoxPyLxKmiNdwtlXw9Bl7qrCzk4hTI7zY5wkWaN8KjWOIEwBsm_Nw1xw_fzwLKWQ5xGTubPHeyuADSSLPs1St_eZ9vu4z1v0LHONv5SMn3Q=w1396-h736-no)
 
 I've never wanted to be an astronaut. That idea was so remote, that I've never considered it when I was a kid. Later in life, when I was reading and watching SCI-FI - space seemed also distant from reality, it was a fantasy. But everything I saw in the Kennedy Space Centre was based on the fantasy. Imagination comes first, reality later. The visitor centre is designed to encourage, spark the interest and think big. On every step highlighting that nothing is impossible and we humans can reach out to the stars and discover unseen.
+
+On our way back we drove to one of top 10 beaches in Florida - Cocoa Beach.
+
+![](https://lh3.googleusercontent.com/BZqrNJhbLN2Eowex3zLdjgJdkrlCgkRg820H8ol_rdnEEH19EB5Lx9ECyN96I1B9Eeq2uZtlhaCSakNGeeDTHXmEGwuT7PxfLQN2Q3FJ2UHSKOcVUsn64xTidwyMSShJDfTLIKyNlbueIHzX1Rp_-Yx9A79j1qkAquj8TqMJ8WgbL_1xVJ0M8WHwW0QXU-f6MJcaW06zpDkRApb9nEw36oas9fAo2CVyrTkCV5ZSnlmIwZQPljtdxaAHEExBMgMTlA6h7xA0gVhj3aevhvYedS0w-QgJvRJcrR7y853QKt6uEqrokdSEVxgx54PVDAB4_-9JcRFZvrQCB9m23xrcBvWhhOVzt59q2ULYotHKqYf91FM92uyEXybsuf8Bv-BwSzZRQow4IVGGcaEYqjMe4zPvBhYGzRUWO5QgjiLbceZ68HC7vtELo7XqNF8KnBLdxXtfIZV48oDarfTMtCeZUGKG2uFcsSQhYjsx-dcSqdRM3GLdsN9_7rxLhtcUgw-gmjy5UP2VEF-lApO7V2cop035s_6VZP-WgNsYMGURTrwuDdkWE4oqrqDnxENpl9Z40khvgNqB01RANd44-GKfr4LWp9HMHbZk5qrFynfgmiI6FPlJlaZZFd8i_jyCTn-lUHpliFHHuWy3Pxvtg0TJ8Vd37wsQBE8KMVjdGqMHqR4=w1309-h736-no)
+
+Unfortunately that trip costed us $38 as we've got a ticket for parking in prohibited place :/
+
+![](https://lh3.googleusercontent.com/JbQrDRqW-3VOotGeVn2Z9E8DEdXZFfbjitkVlQS2WlxaRJdUb1vDGJuOiue-QivDDSVUioP179TC3RuGxmjiHVyLv0wNfnr1PmbAMJv6CyIgEnfc_xaomNWKRodFW4rV4FRu1I0MTRsU6c4L6Ci9P69rhB6Ictfju0sAjcYRHNcd59VxtylHNbUXgZQG76h2j9ZFwAcdR8gJ_kzTDEqON6ZjKWZmcnwC4Nnue6Ya_txQfMlj4fQZPp7inNcTy8P7cZ9mbNppisSZnAt4BPuCz_kB6_fuaDOFpXSZFjBVagvE5p-8uTQy5LsjgrzfwNAd0dMq-tRplv-ConYzCCudXP0giULaFY5g9mlaWOPxwr4ZaAiZ4jd30anc6edB7RywfSYsESyuctLW7Qh8HBB68BOwgx7t6d6vOuZiuqzzVYI3R94nIgnKyp2YJBJmwLGiHyrM78eYaofl1j0dR3_46ALy_JfYyFDr4t3V9vAIgVD7NigtXdpIcjVKHR1XL6darBtbKf4dVgI03r83lDGgqGKk3cAm_yDzZKXpKMG4lWVPDvlETGLfXqwuDusY1kZG02rYY87Rmu4ozpqLpSlV9ijRBeU9-xr_tGnqOFnZ7dGfBGs-ZKTeAUNFXUOAN8xK0odjw6eI6Zxf6TEN-Q9DJc_xxhxJnA1ikL83LM5sHR4=w414-h736-no)
