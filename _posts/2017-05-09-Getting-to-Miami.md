@@ -34,7 +34,7 @@ Water was some warm, clean and shallow - just perfect!
 
 We must say that we were very lucky with the traffic - we've heard that the roads to and from Keys might be very busy but we managed to get to Miami without wasting any time in a traffic jam.
 
-Our next airbnb accommodation appears to be on a 34 floor from which we have an amazing view on the city.
+Our next airbnb accommodation appears to be on a 32 floor from which we have an amazing view on the city.
 
 ![](https://lh3.googleusercontent.com/VeKZpO1bUb4K30oaWNuJjkJY2UhysgX6XIraVXcJi1PKbkJjpspS9s1XjgUL2xOgAq2msrbbD5p_Y5tehOrUIQzSAZb3Q_UUM_yeE8Gn7Xtc7LQOrMd_LqSjFW7dsW0NJ8Q4lFGbkHPZqUtIjWCnrrJcRqB5AI3Rvvb96Lx5ByLGoxW7qerk6obYS0f-NU5HlCG8UcKX3By8gFI07xF5a6aA_gFAzr2Qnc54-gVOd7XKKXY8vXfnF8XfT9cn6qYlqHoCu4XDYBbekQ6NfdEiCAw2hVK1WUUTNpwQfpPpW3Vlwa_scE8C8wBllr9R6JOdeeJO-3-HcLhaVTMgKSjzIBp1KYDwMdnMbLjy960XzkAoXQpTO9HRuxnVhaG7muxFGYjKmlgLI1RUtBWTslZkGFgneicvwYcGkGGPEXxv5C11nwB6OtgwSpopdeT86DDV4xZl2HvXPKS73ykIxeDl76jaTqcXErhWjLZ_80ukhrPg1Vf6r6S31U3XOig69uEjpUiIgtioExhasdb0o4WqaBwr_p2EXf-dRMlliT4_1GblDzNzhvdGWRdEPHmVaLS43Pp2ALLPFIMe-vqVtZ4vNbtXShiEOVHfXlZ99qHZ9-htvPa9EmKZfw=w920-h517-no)
 

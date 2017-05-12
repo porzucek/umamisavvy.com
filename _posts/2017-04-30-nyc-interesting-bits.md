@@ -14,8 +14,8 @@ That's quite bizzare but apparently they don't have a single water tower that pr
 
 ---
 
-**Underground Steam** - In some parts of Manhattan, mainly close to the Time Square you will see a steam getting out from the underground. That view reminded me the one from Beppu (JPN) but as far as I know NYC is not located on any active volcanic areas.
-The reason of that steam is the way how parts of the city is heated. Steaming water is transported through the pipes and used for variety of things.
+**Underground Steam** - In some parts of Manhattan, mainly close to the Time Square you will see a steam getting out from the underground. That view reminded me the one from Beppu (JPN) but as far as I know NYC is not located on an active volcanic areas.
+They use steam to heat some parts of the city. Steaming water is transported through the pipes and used for variety of things.
 But since the pipes are old they start cracking and steam is bursting from them.
 
 ![](https://lh3.googleusercontent.com/_58rOPuCZ0GyGmDXZPL5kmFyHkLFJYdO_HSh0fxcp0wqh-7q0GL0_n5mBL_xYsjQ7AbmVjo8P1J_DpjSuVMknxW6jYKFUG99oLCYUkMgB4DKMEZn_-hz9rjTgUXQrARDVAzFNlbrQzKCX8oF4TvFBmzROGSEUqbfE0jc0mX5vxTeMqPa9jhO1WnSO_xbZ-Hr0ty8AFdiKBPicLttv_u0g7VRoFICjVIFzvBxiHQU8SCjTISpc-r8fQnvTzB_Mz3exuHTbOEUcCpjwLjxD3fAmWZDNy4uUzqxzSMtfevMyEesKUA9oL3n6VrxZyqBtsJjJZJ-fXu_2N3NzoMR76kU6IvrJB6ND4t13te7ZVspsjH-lxoaIMLpopCtt4n0PkA5tQBJwrEE1njsI-UVq2Xdhnr2CpEWrFGb7pCqRDoedsTvcry7Jo08pXhqQxmzY4WR8XVYAcb2yyn-CpDtch-EvbV3YNMu7_Xcrfp67okovjqTLMH1JDKOn9DxkYI6GyIwVTDdvzV4gVinYVIOpqoNW5P-CdDgPRzqGPpk_qmG7WIuDmnhXzgrsc4O-VWI_DmvldOv36YQJUX_nY_bcSmYF42Ii5o_2n4Lg507It5lBcT4G80YEZTeYE4M5K5BtdewnUjETLwPSciTd8QaigbwSKSDm5kOaBUkcfyxMjz77q0=w439-h780-no)
@@ -34,7 +34,7 @@ Something that explains it though, is that waiters and bartenders have very smal
 
 ---
 
-**City bikes** - Hands down the best way to travel around Manhattan. There are many bike lanes, and looks like drives got used to cyclist. Although you should still watch out for pedestrians who get on the road all the time.
+**City bikes** - Hands down the best way to travel around Manhattan. There are many bike lanes, and looks like drives got used to cyclists. Although you should still watch out for pedestrians who get on the road all the time.
 
 ![](https://lh3.googleusercontent.com/HbQdQnw2wRHKfIO-FJ5f6liLRDSi1AkbUgFRfbOZfi6lXcl2Yz4eo9vQYysNXiog1hbx_-PKSxlZAkjZSDKuI1j-vv7hTwMXyTuM7KLmHpbKWAIzxqVnzYi7OlvUA0_77p_2WIL1-MA1lXMR0-4s0y6xnF9UYVRq5Jj9e83uA2zOhMN68FBxZbSYhQNlySSxQElMrUE-jZgTNUfkifrIa_OkB8S2BvTpVsUL1gitb6z6kqEgDyNyvPR1s7VOXMR2fkHvrwGiiPMY94sfjHotUjPLmyISTneWFnrRXtPvUIJZ7DppyeDl5tSYeIheB83FCkF76duBw15-2s4e3NSEQT_XSrDDSdAsZwIOoEIq4ye-0x9YqIE1s9kxF4B4oxYoCC5R2KONX0luTilZdEmDdHRCdFFMhFZsWrO18ql9qcDJxvvNzhhOD1VfjdtzS9YLTsKAETcVHp9drPlT5UCIYN6Qgkw8m21XFEn3GtUWpWmp6gurO3DDrmev93xB5STEEbaif0_sGP3JpaU6PGQWZrUT0niYPZOjGWB10qGKj0gU9_Kr0C5YIY4akyqeoaTLbL-MUCOAlfN2u6Sn8hgJxxKzpr_fhI3sBogOluwpVDL7elBVJ6kYzAifu8r2qrlI232jwQAPSZmVA86nvCKN7Pz75pR7xxqZMUR00bu9YZg=w604-h340-no)
 
@@ -42,7 +42,7 @@ Something that explains it though, is that waiters and bartenders have very smal
 
 Guns - It's illegal to carry a gun in NYC.
 
-Another interesting fact is that there are waiting periods when you purchase a gun in most of the states. It's usually 15 days from the time you've purchased until you physically get the gun. There are few reasons. First they need time for background checks. And also if someone is in bad shape, it works as a cooling off period, so whatever people need a gun for, it might be not needed anymore after 15 days. More info [here](http://smartgunlaws.org/gun-laws/policy-areas/gun-dealer-sales/waiting-periods/)
+Another interesting fact is that there are waiting periods when you purchase a gun in most of the states. It's usually 15 days from the time you've purchased until you physically get the gun. There are few reasons. First they need time for background checks. And also if someone is in bad mental state, it works as a cooling off period, so whatever people need a gun for, it might be not needed anymore after 15 days. More info [here](http://smartgunlaws.org/gun-laws/policy-areas/gun-dealer-sales/waiting-periods/)
 
 ---
 
