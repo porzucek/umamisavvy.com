@@ -15,3 +15,5 @@ highlighter: pygments
 permalink: pretty
 paginate: 15
 exclude: ["less","node_modules","Gruntfile.js","package.json","README.md"]
+
+theme: jekyll-theme-cayman
